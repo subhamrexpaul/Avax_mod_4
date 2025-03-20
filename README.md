@@ -6,6 +6,8 @@ Welcome to the mesmerizing world of DEGENTOKEN as we embark on an epic odyssey t
 
 Behold, within this grand tapestry, I have woven the intricate threads of a token known as `DEGEN`, a symbol of defiance and honor, branded as `REX`. This token, a relic of my creation, carries the promise of rewarding valiant players within the confines of a game. These earned treasures hold the key to unlocking the coveted treasures within the `foodShop`, a realm where exclusive game items await their rightful owners. To add to its mystique, this token is tailored for deployment upon the majestic AVALANCHE Blockchain.
 
+https://www.loom.com/share/afcb217d38e54943a03dee6d6eefe2a8?sid=b789bbce-a7af-4f41-960b-c38780c7c435
+
 ## Commencing the Odyssey
 
 ### The Initiation Ritual
